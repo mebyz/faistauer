@@ -1,18 +1,37 @@
 ---
 layout: post
-title: My New Post
+title: CRISTIAN FAISTAUER (1623 - 1662)
 ---
+	
+CRISTIAN FAISTAUER was born on Sep 01, 1623 in Lofer [Faistau], AT-5090, Zell Am See, Salzburg, OESTERREICH,. He died on Apr 19, 1662 in ?.He married (1) SUZANNE ? on Unknown date. She wasborn in 1625 in ?. She died on Unknown date in ?. He married (2) ?. She died on Unknown date. He married (3) URSULA ROEMER. She was born on Unknowndate. She died on Unknown date.. 
 
-Lorem ipsum dolor sit amet, consectetur adipiscing elit!
 
-<amp-img width="600" height="500" layout="responsive" src="http://lorempixel.com/600/500/transport"></amp-img>
+He traveled over 350 miles to cut the beech trees for the glass works in Rosteig. Why? We are not sure. Perhaps a glass worker there knew of him and knew he could cut the trees so they burned evenly which was an issue. One can only guess it was due to his craftsmanship.
 
-Nulla dapibus vestibulum ligula in sodales. Phasellus eu metus quam. Sed id varius diam. Morbi pellentesque lorem vitae ex commodo, sed dapibus ex dignissim. Etiam facilisis pellentesque gravida. Sed tempus diam sed odio tempor, tristique elementum erat condimentum. Ut volutpat dui ex, a auctor dolor pretium eget.
 
-Vivamus nec mauris suscipit enim viverra tristique ut eget risus. Vestibulum ullamcorper at sem eu sodales. Praesent felis tellus, condimentum vitae purus id, consectetur interdum urna. Pellentesque laoreet non arcu volutpat euismod. Suspendisse sed enim non ex interdum sodales. Quisque vitae vestibulum turpis. Aenean nec est dolor.
+Notes for Christian Faisthauer Feisthauer:
 
-> Pellentesque quis mi at erat iaculis cursus. Phasellus ligula neque, pulvinar sed malesuada id, feugiat ac magna. Proin sed scelerisque metus. Pellentesque mi augue, egestas nec ante a, faucibus ullamcorper enim. Sed nisi felis, rutrum imperdiet aliquam nec, placerat vel odio. Nulla quis urna ut risus aliquam tempor.
+This is the Letter Edouard send me which got the ballrolling, causing the chain reaction which now links my family tree to Franceand many relatives I have yet to meet. Thank You Lord for All Your Blessings.
 
-<amp-img width="600" height="300" layout="responsive" src="http://lorempixel.com/600/300/transport"></amp-img>
+Margaret Ann,
+My name is Edouard FESTOR. I am French, living in Germany,near Munich. I found your Emails in the WEB and saw that you have somelink(s) to the FESTOR family. Since I am also interested in genealogicalresearch, I would be very happy if you sent to me any information about theFESTORs you have and perhaps we can find a link between us. The oldest FESTOR(my ancestor) I found was born in France, Alsace, in a little village called Rosteig, the 3rd of June 1661. His name was Hans Jakob FAISTAUER. He married ROSENBERGER Margaret (about 1684)and was a Glassmaker master, in Lauterbach (Sarre, Germany, near the frenchfrontier). He spoke
+German and was not able to read or to write, so that his name has been changed byFrench speaking priests into FESTOR about 1700.
+His father was FAISTAUER Christian and his mother NN... Suzanne. They came from thehamlet of Faistau, 2km from Lofer,near Salzburg (Austria). This FAISTAUER family can be followed up until about1450. They were farmers in Faistau (Austria).
+If you are interested by more information, please feel free to Email. 
+avec toutes mes amitiés
 
-Nulla mi risus, lobortis quis lectus vel, gravida eleifend lacus. Proin mattis odio elit, nec vehicula diam varius vitae. Nunc a ipsum at justo rhoncus mattis. Proin auctor lorem quis libero viverra aliquam. Suspendisse quis tristique sapien. Integer eu felis vel orci dignissim suscipit pharetra vitae nisl. Ut viverra sed enim quis pretium. Etiam auctor a ante sed pharetra.
+Edouard FESTOR
+
+Christian Faisthauer Feisthauer and Suzanne ? had the following children:
+- JEAN GASPARD FAISTHAUER3 FEISTHAUER was born on Dec 22, 1653 inRosteig, France. He died on Unknown date. Hemarried ANNE(SAUDER) SAUTER on Jan 21, 1680 in Sarre-Union, daughter of Vitus Sauter and ?. She was born onUnknown date. She died on Unknown date.
+- ANNE BARBARA FAISTHAUER FEISTHAUER was born on Aug 26, 1656.She died on Unknown date.
+- JEAN MATHIAS FAISTHAUER FEISTHAUER was born on Apr 18, 1658. Hedied on Unknown date.
+- HANS JEAN JACQUES (FAISTAUER) FESTOR was born on Jun 03, 1661 inRosteig, France. He died on Jan 26, 1734 in Lauterbach, Germany. He married MARIE MARGUERITE ROSENBERGER in 1685, daughter of JeanPierre Eberhard ROSENBERGER and Anne MadeleineBONHOMME. S
+- ELISABETH ISABELLA FAISTHAUER FEISTHAUER was born on Unknown date.She died on Unknown date.
+
+-- 
+
+A environ 2km au Nord Ouest de Lofer, une commune autrichienne du pays de Salzburg, existe le Hameau de Faistau dont les habitants sont appelés "Faistauer" d'ou lenom de famille "Faistauer". Vers 1650, avec d'autres Autrichiens( Pagetsch, Neudecker) Faistauer Christian et son frère Georges s'établssent dans la région de South en Alsace Bossue où ils travaillent comme bucherons à la verrerie de Rosteig-Kalenberg.Le couple Faistauer Jean Jacob et Rosenberger Marguerite s'établit en Sarre, où il fonde avec son fils Jean Adam et avec d'autres verriers, la verrerie de Lauterbach; c'est à cette époque, à Creutzwald (Moselle) la paroisse dont dépendait Lauterbach, que le nom de Feistauer ou Faistauer se transforma progressivement en "Festo"; Jean Jacob Faistauer allias Festor, est par concéquent et selon toute vraisemblance,l'ancêtre commun à tous les "Festor"
+
+--
+
